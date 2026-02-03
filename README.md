@@ -1,3 +1,0 @@
-# DishanyaaShriiKM7-CTFQuest_DISHANYAA-SHRII-K-M
-# DishanyaaShriiKM7-CTFQuest_DISHANYAA-SHRII-K-M
-# DishanyaaShriiKM7-CTFQuest_DISHANYAA-SHRII-K-M
